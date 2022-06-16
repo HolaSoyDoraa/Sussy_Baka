@@ -1,8 +1,7 @@
-### zombie Apocalypse
+### HAVE YOU SEEN A SUSSY BAKA
 
 
 
+IF YOU SEE A SUSSY BAKA YOU MUST RUN
 
 
-
-what would you do in a Zombie Apocalypse?
