@@ -2,6 +2,4 @@
 
 
 
-IF YOU SEE A SUSSY BAKA YOU MUST RUN
-
 
